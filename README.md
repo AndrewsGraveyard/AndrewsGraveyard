@@ -13,3 +13,11 @@ hai th3r3 im a z1eepy guy ✶ ᶻz .ᐟ
 
 
 
+     # SOME OF THE FANDOMS IM N : 
+     Death note, mouthwashing, roblox in gen, the last of us, animal crossing, devil may cry, utaloid and more !! 
+     
+            TMASC / DEMI BOY 
+              -PANSEXUAL  /  POLYROMATIC  
+          NEUROLOGICAL  .  ANXIETY DISORDERS !  
+           AGAIN IWEC PLSZZZ!!! BUT C+H IS WELCOME ALWAYS
+              
